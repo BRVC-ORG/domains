@@ -1,4 +1,4 @@
-# web3 Domains Owned by BRVC
+# web3 Domains Owned By BRVC
 
 satoshillc.pw (purchased 23 December 2024)
 
