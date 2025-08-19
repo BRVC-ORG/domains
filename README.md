@@ -1,11 +1,11 @@
 # web3 Domains Owned by BRVC
 
-satoshillc.pw
+satoshillc.pw (purchased 23 December 2024)
 
-highbaroque.unstoppable
+highbaroque.unstoppable (purchased 23 August 2024)
 
-highbaroque.raiin
+highbaroque.raiin (purchased 23 August 2024)
 
-highbaroque.tball
+highbaroque.tball (purchased 23 August 2024)
 
-highbaroque.dfz
+highbaroque.dfz (purchased 23 August 2024)
